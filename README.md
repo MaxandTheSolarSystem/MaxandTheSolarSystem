@@ -1,7 +1,7 @@
 - * . °•★|•°∵ welcome ∵°•|☆•° . *
 - ✧. ┊ ⁭ we're the solar system, a DID system mainly revolving around a space theme ~
 - *.·:·.✧ ✦✧.·:·.*
-- ✧. ┊ ⁭ caard is coming soon...
+- ✧. ┊ ⁭ We play Ponytown very often, and mainly in the UTMV area! We are usually using the pony of who is fronting, but if you are not sure, feel free to ask(through a whisper, of course)!
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ ⁭ DNIUC list : Forest, Lee, Enmu, Trev
 - *.·:·.✧ ✦✧.·:·.*
@@ -45,7 +45,7 @@
 -  ![temtem](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/2b23bbc2-1a73-42e6-908b-890ea7ef7e6b)
 -  ✧. ┊ Tem - Comfort
 -  ✧. ┊ She/They/It/Cat
--  ✧. ┊ Tem is friendly! Feel free to interact with cat as long as you may like! She does speak like a temmie though, so people will dyslexia or have trouble reading, please IWC!
+-  ✧. ┊ Tem is friendly! Feel free to interact with cat as long as you may like! She does speak like a temmie though, so people with dyslexia or that have trouble reading, please IWC!
 -  *.·:·.✧ ✦✧.·:·.*
 -  ![plum](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/569e85ab-9b97-40e6-b9b2-afec4c68192b)
 -  ✧. ┊ Plum - Protector, Sexual Alter/Sexual Trauma Holder
