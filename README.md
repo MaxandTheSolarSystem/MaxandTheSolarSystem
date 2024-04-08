@@ -64,7 +64,7 @@
 -  ✧. ┊ Boo is friendly, but does not speak english! So don't expect them to say anything, but still feel free to interact!
 -  ✧. ┊ ATTENTION : Boo is a Ghostboo alter and is a lot like her source! Please DO NOT recite any lore to them! Thank you.
 -  *.·:·.✧ ✦✧.·:·.*
--   [plum](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/569e85ab-9b97-40e6-b9b2-afec4c68192b)
+-  ![plum](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/569e85ab-9b97-40e6-b9b2-afec4c68192b)
 -  ✧. ┊ Plum - Protector, Sexual Alter/Sexual Trauma Holder
 -  ✧. ┊ She/Him/They
 -  ✧. ┊ ATTENTION : Due to harrassment of Lust alters and cosplayers, we ask that you do not interact with Plum when fronting, thank you for understanding.
