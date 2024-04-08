@@ -16,9 +16,14 @@
 -  ✧. ┊ Kills - Main CoHost
 -  ✧. ┊ He/They/It
 -  ✧. ┊ Kills is friendly, but has dark humor + bad language. IWC!
+-  *.·:·.✧ ✦✧.·:·.
+-  ![robe](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/8e65c9de-9b15-4958-af36-e623f387e80f)
+-  ✧. ┊ Robe - Secondary CoHost
+-  ✧. ┊ He/She
+-  ✧. ┊ Robe is friendly, but shy and easy to upset. IWC.
 -  *.·:·.✧ ✦✧.·:·.*
 -  ![msmuff](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/60338d8d-b499-4e9f-9c71-4bbae7ff375e)
--  ✧. ┊ Ms. Muff - Secondary CoHost
+-  ✧. ┊ Ms. Muff - Third CoHost
 -  ✧. ┊ She/They/Spider
 -  ✧. ┊ Ms. Muff is friendly! Feel free to interact!
 -  *.·:·.✧ ✦✧.·:·.*
@@ -47,11 +52,28 @@
 -  ✧. ┊ She/They/It/Cat
 -  ✧. ┊ Tem is friendly! Feel free to interact with cat as long as you may like! She does speak like a temmie though, so people with dyslexia or that have trouble reading, please IWC!
 -  *.·:·.✧ ✦✧.·:·.*
--  ![plum](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/569e85ab-9b97-40e6-b9b2-afec4c68192b)
+-  ![rammie](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/e0ca184a-4c14-4d56-a978-3b3f97818eec)
+-  ✧. ┊ Rammie - Comfort
+-  ✧. ┊ He/It/Ram/Sheep
+-  ✧. ┊ Rammie is friendly! Feel free to interact!
+-  ✧. ┊ ATTENTION : Rammie is NOT JSCHLATT. Do not connect him to his source, as it is nothing like him! Thank you.
+-  *.·:·.✧ ✦✧.·:·.*
+-  ![boo](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/34457ab2-9718-4fc1-8232-cb78e351bdc6)
+-  ✧. ┊ Boo - Comfort
+-  ✧. ┊ She/It/They
+-  ✧. ┊ Boo is friendly, but does not speak english! So don't expect them to say anything, but still feel free to interact!
+-  ✧. ┊ ATTENTION : Boo is a Ghostboo alter and is a lot like her source! Please DO NOT recite any lore to them! Thank you.
+-  *.·:·.✧ ✦✧.·:·.*
+-   [plum](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/569e85ab-9b97-40e6-b9b2-afec4c68192b)
 -  ✧. ┊ Plum - Protector, Sexual Alter/Sexual Trauma Holder
 -  ✧. ┊ She/Him/They
 -  ✧. ┊ ATTENTION : Due to harrassment of Lust alters and cosplayers, we ask that you do not interact with Plum when fronting, thank you for understanding.
 -  *.·:·.✧ ✦✧.·:·.*
+-  ![splatter](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/517cd4d4-9aaf-43c7-89b4-c85ab9b8a85f)
+-  ✧. ┊ Splatter - Introject, often fronts
+-  ✧. ┊ They/It/Splat
+-  ✧. ┊ Splatter doesn't talk often, but is overall friendly. Feel free to interact!
+-  ✧. ┊ ATTENTION : Just because Splatter is a Paperjam alter DOES NOT MEAN we ship FreshJam. Splatter is 16, do NOT be creepy. If you have an issue with them, just hide us or ignore us. DO NOT BE AN ASSHOLE.
 
 
 
