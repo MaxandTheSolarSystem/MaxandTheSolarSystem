@@ -3,7 +3,7 @@
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ ⁭ We play Ponytown very often, and mainly in the UTMV area! We are usually using the pony of who is fronting, but if you are not sure, feel free to ask(through a whisper, of course)!
 - *.·:·.✧ ✦✧.·:·.*
-- ✧. ┊ ⁭ DNIUC list : Forest, Lee, Enmu, Trev
+- ✧. ┊ ⁭ DNIUC list : Forest, Lee, Enmu
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ Our list of our Host, CoHosts and other main alters :
 -  *.·:·.✧ ✦✧.·:·.*
@@ -21,6 +21,7 @@
 -  ✧. ┊ Robe - Secondary CoHost
 -  ✧. ┊ He/She
 -  ✧. ┊ Robe is friendly, but shy and easy to upset. IWC.
+-  ✧. ┊ Attention : Robe is a MINOR. Do not flirt with him. Thank you.
 -  *.·:·.✧ ✦✧.·:·.*
 -  ![msmuff](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/60338d8d-b499-4e9f-9c71-4bbae7ff375e)
 -  ✧. ┊ Ms. Muff - Third CoHost
@@ -68,6 +69,7 @@
 -  ✧. ┊ Plum - Protector, Sexual Alter/Sexual Trauma Holder
 -  ✧. ┊ She/Him/They
 -  ✧. ┊ ATTENTION : Due to harrassment of Lust alters and cosplayers, we ask that you do not interact with Plum when fronting, thank you for understanding.
+-  ✧. ┊ Another note : Plum is NOT EXACTLY LIKE HER SOURCE. They barely connect themselves to it, only for "yes, that it my source" reasons. Any of the points or drama regarding Lust Sans excludes him from the equation. Do not try to bring it up with her, as it makes her uncomfortable. Plum despises how her source is pictured and created, and does not want to be tied to it. Please and thank you.
 -  *.·:·.✧ ✦✧.·:·.*
 -  ![splatter](https://github.com/MaxandTheSolarSystem/MaxandTheSolarSystem/assets/165223802/517cd4d4-9aaf-43c7-89b4-c85ab9b8a85f)
 -  ✧. ┊ Splatter - Introject, often fronts
