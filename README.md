@@ -1,5 +1,5 @@
 - * . °•★|•°∵ welcome ∵°•|☆•° . *
-- ✧. ┊ ⁭ we're the solar system, a DID system mainly revolving around a space theme ~
+- ✧. ┊ ⁭ we're the constellations, a DID system mainly revolving around a space theme ~
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ ⁭ We play Ponytown very often, and mainly in the UTMV area! We are usually using the pony of who is fronting, but if you are not sure, feel free to ask(through a whisper, of course)!
 - *.·:·.✧ ✦✧.·:·.*
