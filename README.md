@@ -1,7 +1,9 @@
 - * . °•★|•°∵ welcome ∵°•|☆•° . *
-- ✧. ┊ ⁭ we're the constellations, a DID system mainly revolving around a space theme ~
+- ✧. ┊ ⁭ We're The Constellations, a DID system mainly revolving around a space theme ~
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ ⁭ We play Ponytown very often, and mainly in the UTMV area! We are usually using the pony of who is fronting, but if you are not sure, feel free to ask(through a whisper, of course)!
+- *.·:·.✧ ✦✧.·:·.*
+- ✧. ┊ If we don't respond at all when you come up to us, feel free to just sit next to us until we react. We're usually tabbed out or distracted with something.
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ ⁭ DNIUC list : Forest, Lee, Enmu
 - *.·:·.✧ ✦✧.·:·.*
