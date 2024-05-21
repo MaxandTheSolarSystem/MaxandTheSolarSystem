@@ -5,7 +5,7 @@
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ If we don't respond at all when you come up to us, feel free to just sit next to us until we react. We're usually tabbed out or distracted with something.
 - *.·:·.✧ ✦✧.·:·.*
-- ✧. ┊ If the alter/pony we are using has "DNI" in the name, feel free to give us stuff. Just don't don't try to talk to us because we're either busy with something/someone else so we can't talk/stay for long. (PS : any food given to us will be eaten on the spot)
+- ✧. ┊ If the alter/pony we are using has "DNI" in the name, feel free to give us stuff. Just don't don't try to talk to us because we're either busy with something/someone else so we can't talk/stay for long. (PS : any food given to us will be eaten on the spot). Sometimes they'll talk back though, if they're in a good mood.
 - *.·:·.✧ ✦✧.·:·.*
 - ✧. ┊ ⁭ DNIUC list : Forest, Lee, Enmu
 - *.·:·.✧ ✦✧.·:·.*
